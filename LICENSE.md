@@ -1,4 +1,4 @@
-# 
+# secure Sniper for dexscreener sniper bot | dex-sniping & meme-coin-scanning is the best dexscreener sniper bot, featuring dex-sniping and meme-coin-scanning. Fast, smart, and
 
 
 
